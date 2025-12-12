@@ -1,4 +1,4 @@
-Balanoire à Chaise Tournante
+Balançoire à Chaise Tournante
 
      
 
